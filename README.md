@@ -38,3 +38,10 @@ Puxe suavemente as asas para fora para dar volume ao tsuru.
 
 Ajuste o bico e a cauda para que fiquem alinhados.
 
+## Dicas Importantes:
+Marcação das Dobras: Pressione bem todas as dobras com as unhas ou um objeto liso (como uma régua) para garantir precisão.
+
+Assista ao Vídeo: Confira o tutorial em vídeo para visualizar os passos críticos
+https://drive.google.com/file/d/1ivDbMYlRQ5ar-3K5QPkhM6ueynYTGKhk/view?usp=sharing
+
+
